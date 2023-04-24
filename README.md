@@ -1,2 +1,7 @@
-# AHYS9.github.io
-27.04.22
+Hello my cute little girlfriend,
+
+Avant tout Joyeux 1 mois!!
+To imagine toi, fini faire 1 mois tout, Lestemps in passe mari vite mais malheureusement bzn atan enkor bcou avant nu cav zwen.  Pour etre franc avec toi, mo ti pu zis ecrire enn paragraph apres avoy lor insta mais recement ena zafr in arrive toi et mo ti envi sey fr inP plus.
+Mais bref revenons a nos mouton.
+Sa bane 1 mois la ti formidable, coma to conner mo ti trouve mo la vie boring mais depi mone conne toi li different. Astr la kan mo leV, mo conner mo la journer pas pu sa boring la acoze mo ena toi. Depi mone conne toi, mo plis joyeux et mo cav dir ki ena enn sense dans mo la vie (bezer to ena enn copain depressif lol). Cav to ena l’impression ki to pu agace moi si to trop “collant” mais mo cntn sa. To coir mo pu agacer kan tifi plis zoli au monde P donne moi l’attention, to la tete pas bon toi taaaa. Sa bane 1 mois la certes ti ena bane “fight”/sad moments mais mo penC ki c enn bon zafr parski sa in aide nu couple vin plis fort et dans sa bane moments la mone comprend toi plis. Mone comprend ki mo copine C enn tifi ki bzn bcou l’attention (comme moi d’ailleurs XD), ki C enn dimoune ki bien fort mentalement, ki li cntn garde bane zafr pu li parski li peur agace/ fatigue moi oubien parski li envi ki tt krk mais mo dir toi enn zafr fille, zamais to refr sa ein, kan ena enn prob to dir moi, zamais to garde li pu toi, to bane prob C mo prob et mo bane prob C to prob, ensam nu pu sey resoudre banla. Coma nu pu fr kan nu pu marier snn. Mo conner mo dir toi li souvent mais mo mari mari cntn toi. Mo pas trouve enn l’avenir sans toi. Kan mo imagine mo marriage, C toi ki mo trouV dans robe blanc la et personne d’autre. Tout les zour mo envi hug/kiss toi et sa agace moi ki mo pas cav fr li mais kan nu pu zwen l’an prochain mo pu fr li tellement bcou ki toem to pu plein XD.
+
