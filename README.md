@@ -1,3 +1,5 @@
+title: Joyeux 1 mois
+theme: jekyll-theme-minimal
 Hello my cute little girlfriend❤
 Avant tout Joyeux 1 mois!!🎉❤
 To imagine toi, fini faire 1 mois tout☺ Lestemps in passe mari vite mais malheureusement bzn atan enkor bcou avant nu cav zwen😭.  Pour etre franc avec toi, mo ti pu zis ecrire enn paragraph apres avoy lor insta XD mais recement ena zafr in arrive toi et mo ti envi sey fr inP plus😊.
