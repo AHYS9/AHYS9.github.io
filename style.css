@@ -2,7 +2,7 @@
 .container{height: 150vh; width:150vw; color:#444; background:#e7b1cb; text-align: center}
 .love, .yes, .no{padding-top: 25%;}
 h2{font-size: 72px; margin-bottom: 30px;}
-h3{font-size: 50px; margin-bottom: 30px;}
+h3{font-size: 40px; margin-bottom: 25px;}
 .love span{color:#fc9786;}
 .love a{text-decoration: none; background: #eee; padding: 5px; margin: 5px 10px; border:3px solid #ddd; border-radius: 10px;}
 #no{color:red;}
